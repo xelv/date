@@ -121,14 +121,15 @@
 41. Instaexperience (Mall Kota Kasablanka, Jl. Raya Casablanca Raya No.Kav. 88, Menteng Dalam, Kec. Tebet, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12870) sampai 23 Juli 2023\
 [Instagram](https://www.instagram.com/reel/CuTjNx8Afwy/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/AaZSLi9u2chLhFUg8)
 
-42.  ()\
-[Instagram](https://www.instagram.com/reel/CuO4233hr_m/?igshid=MTc4MmM1YmI2Ng==) | [Maps]()
+42. Izokaya Izakaya (Blok M Square, Jl. Melawai 5 No.8, RW.1, Melawai, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12160)\
+[Instagram](https://www.instagram.com/reel/CuO4233hr_m/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/FLnYGecoHqoW8ofg6)
 
-43.  ()\
-[Instagram](https://www.instagram.com/reel/CujlRHdhcoS/?igshid=MTc4MmM1YmI2Ng==) | [Maps]()
+43. Ningyo (Galeri Nasional Indonesia, Jl. Medan Merdeka Tim. No.14, RT.6/RW.1, Gambir, Kecamatan Gambir, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10110) sampai 24 Juli 2023\
+[Instagram](https://www.instagram.com/reel/CujlRHdhcoS/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/GjkJ3e7fBZjRiAgx5)
 
-44.  ()\
-[Instagram](https://www.instagram.com/reel/CrtHiOKBnmv/?igshid=MTc4MmM1YmI2Ng==) | [Maps]()
+44. Hitauchi Cafe (Jl. Pejaten Barat Raya No. 30, RT/RW. 01/01, Daerah Khusus Ibukota Jakarta 12510)\
+[Instagram](https://www.instagram.com/reel/CrtHiOKBnmv/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/9hj95QGyS8JZ7vFr5)
 
-45.  ()\
-[Instagram](https://www.instagram.com/reel/CrdQfSfsaJE/?igshid=MTc4MmM1YmI2Ng==) | [Maps]()
+45. Ikkudo Ichi, Seirock-Ya, Marugame Udon, Hokben (Ramen)\
+[Instagram](https://www.instagram.com/reel/CrdQfSfsaJE/?igshid=MTc4MmM1YmI2Ng==)
+
