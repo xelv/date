@@ -89,7 +89,7 @@
 [Tiktok](https://vt.tiktok.com/ZSLDGVWNY/)
 
 31. Pasta by the Park by Papa Ryo (Taman Literasi Martha Christina Tiahahu, Jl. Sisingamangaraja, RT.3/RW.1, Melawai, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12160)\
-[Tiktok](https://vt.tiktok.com/ZSLDtdKNt/)
+[Tiktok](https://vt.tiktok.com/ZSLDtdKNt/) | [Instagram](https://www.instagram.com/reel/CtRGty5sh43/?igshid=MTc4MmM1YmI2Ng==)
 
 32. Taman Literasi Martha Christina Tiahahu (Jl. Sisingamangaraja, RT.3/RW.1, Melawai, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12160)\
 [Maps]()
