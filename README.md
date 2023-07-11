@@ -78,16 +78,15 @@ https://vt.tiktok.com/ZSLknGJQ1/
 https://vt.tiktok.com/ZSLAXmWs5/
 
 26. Kopi Nako Daur Baur (Senayan Park, Jl. Gerbang Pemuda No.3, RT.1/RW.3, Gelora, Kecamatan Tanah Abang, Daerah Khusus Ibukota Jakarta 10270\
-)
 https://vt.tiktok.com/ZSLDJ9jNG/
 
-27. Biju Bakeshop & Coffee (Jl. Melawai Raya No.189, Kramat Pela, Kec. Kby. Baru, Jakarta, Daerah Khusus Ibukota Jakarta 12130)
+27. Biju Bakeshop & Coffee (Jl. Melawai Raya No.189, Kramat Pela, Kec. Kby. Baru, Jakarta, Daerah Khusus Ibukota Jakarta 12130)\
 https://vt.tiktok.com/ZSLDG3oBr/
 
-28. SKY CAMPSITE (Jl. Puncak Dua Jonggol, Sukawangi, Sukamakmur, Bogor Regency, West Java 16830)
+28. SKY CAMPSITE (Jl. Puncak Dua Jonggol, Sukawangi, Sukamakmur, Bogor Regency, West Java 16830)\
 https://vt.tiktok.com/ZSLDGVWNY/
 
-29. Pasta by the Park by Papa Ryo (Taman Literasi Martha Christina Tiahahu, Jl. Sisingamangaraja, RT.3/RW.1, Melawai, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12160)
+29. Pasta by the Park by Papa Ryo (Taman Literasi Martha Christina Tiahahu, Jl. Sisingamangaraja, RT.3/RW.1, Melawai, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12160)\
 https://vt.tiktok.com/ZSLDtdKNt/
 
-30. Taman Literasi Martha Christina Tiahahu (Jl. Sisingamangaraja, RT.3/RW.1, Melawai, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12160)
+30. Taman Literasi Martha Christina Tiahahu (Jl. Sisingamangaraja, RT.3/RW.1, Melawai, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12160)\
