@@ -14,7 +14,7 @@ https://vt.tiktok.com/ZSLreEXhv/
 4. Feel Matcha - La Spezia BCBD (Jl. Bulevar Bekasi CBD, Marga Mulya, Kec. Bekasi Utara, Kota Bks, Jawa Barat 17143)
 
 5. Feel Matcha - Braga Bandung (Jl. Braga No.64, Braga, Kec. Sumur Bandung, Kota Bandung, Jawa Barat 40111)
-  [Maps](https://maps.app.goo.gl/V2X4sDFy14KUuodG9?g_st=ic)
+    [Maps](https://maps.app.goo.gl/V2X4sDFy14KUuodG9?g_st=ic)
 
 6. Metropole XXI (Megaria, Komplek, Jl. Pegangsaan Barat No.21, RT.1/RW.1, Pegangsaan, Kec. Menteng, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10320)
 https://vt.tiktok.com/ZSL6q7Ytm/
