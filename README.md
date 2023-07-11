@@ -21,6 +21,7 @@ https://vt.tiktok.com/ZSL6q7Ytm/
 
 7. Exquise Patisserie - Menteng (Jl. HOS. Cokroaminoto No.42A, Gondangdia, Kec. Menteng, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10310)
 https://vt.tiktok.com/ZSLM1p4dM/
+https://maps.app.goo.gl/eSfmEyntL3vRsRAd9
 https://goo.gl/maps/SdnjZQCzvQeFsg9H7
 
 8. Exquise Bistro & Patisserie - Gunawarman (Jl. Gunawarman No.18, Selong, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12110)
