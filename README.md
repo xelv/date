@@ -1,8 +1,7 @@
 # LIST NGEDATE ALIYA
 
 1. PLANGI SKY DINING (JL Jenderal Sudirman Kav 50, Plaza Semanggi 10th Floor, Rooftop Restaurants, RT.1/RW.4, Karet Semanggi, Kecamatan Setiabudi, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12930)\
-[Instagram](https://www.instagram.com/reel/Ci7CiPnD2fZ/?igshid=MzRlODBiNWFlZA==)\
-[Maps](https://goo.gl/maps/okf9AdwFWENHuNqx8)
+[Instagram](https://www.instagram.com/reel/Ci7CiPnD2fZ/?igshid=MzRlODBiNWFlZA==) | [Maps](https://goo.gl/maps/okf9AdwFWENHuNqx8)
 
 2. SORE Izakaya Fatmawati (Jl. RS. Fatmawati Raya No.39, RT.14/RW.4, Cipete Sel., Kec. Cilandak, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12420)\
 [Tiktok](https://vt.tiktok.com/ZSLYuTg3A/)\
