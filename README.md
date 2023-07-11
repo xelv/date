@@ -18,8 +18,7 @@
 [Tiktok](https://vt.tiktok.com/ZSL6q7Ytm/)
 
 7. Exquise Patisserie - Menteng (Jl. HOS. Cokroaminoto No.42A, Gondangdia, Kec. Menteng, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10310)\
-[Tiktok](https://vt.tiktok.com/ZSLM1p4dM/)\
-[Maps](https://maps.app.goo.gl/eSfmEyntL3vRsRAd9)
+[Tiktok](https://vt.tiktok.com/ZSLM1p4dM/) | [Maps](https://maps.app.goo.gl/eSfmEyntL3vRsRAd9)
 
 8. Exquise Bistro & Patisserie - Gunawarman (Jl. Gunawarman No.18, Selong, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12110)\
 [Maps](https://goo.gl/maps/g2XyMoFhhhQJg1zi7)
@@ -61,34 +60,35 @@
 [Tiktok](https://vt.tiktok.com/ZSLhLLALG/)
 
 21. Streetfood Apartemen Kalibata\
-[Tiktok](https://vt.tiktok.com/ZSLhErudA/) | [Tiktok](https://vt.tiktok.com/ZSLDGG8aU/)
+[Tiktok 1](https://vt.tiktok.com/ZSLhErudA/) | [Tiktok 2](https://vt.tiktok.com/ZSLDGG8aU/)
 
 22. Museum patah hati (Jl. Jenderal Sudirman No.KAV 22, Kuningan, Karet, Kecamatan Setiabudi, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12920)\
-https://vt.tiktok.com/ZSLkj5s5b/
+[Tiktok](https://vt.tiktok.com/ZSLkj5s5b/)
 
 23. Tanjakan 13 - Kuningan City (Jl. Prof. DR. Satrio No.14, RT.14/RW.4, Kuningan, Karet Kuningan, Kecamatan Setiabudi, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12940)\
-https://vt.tiktok.com/ZSLkbD9B4/
+[Tiktok](https://vt.tiktok.com/ZSLkbD9B4/)
 
 24. COSTESS Cafe & Bar (Cyber 2 Tower 17th Floor, Jalan Haji R. Rasuna Said Blok X-5, RT.7/RW.2, Kuningan, Kecamatan Setiabudi, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12950)\
 
 25. Sentosa Seafood Senayan (Komplek Gelora Bung Karno, Jl. Pintu Satu Senayan. Rooftop Gedung Parkir Elevated, A, Daerah Khusus Ibukota Jakarta 10289)\
 
 26. Golden Pine (Orchid forrest, Cikole, Kec. Lembang, Kabupaten Bandung Barat, Jawa Barat)\
-https://vt.tiktok.com/ZSLknGJQ1/
+[Tiktok](https://vt.tiktok.com/ZSLknGJQ1/)
 
 27. Senayan Park (Jl. Gerbang Pemuda No.3, RT.1/RW.3, Gelora, Kecamatan Tanah Abang, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10270)\
-https://vt.tiktok.com/ZSLAXmWs5/
+[Tiktok](https://vt.tiktok.com/ZSLAXmWs5/)
 
 28. Kopi Nako Daur Baur (Senayan Park, Jl. Gerbang Pemuda No.3, RT.1/RW.3, Gelora, Kecamatan Tanah Abang, Daerah Khusus Ibukota Jakarta 10270\
-https://vt.tiktok.com/ZSLDJ9jNG/
+[Tiktok](https://vt.tiktok.com/ZSLDJ9jNG/)
 
 29. Biju Bakeshop & Coffee (Jl. Melawai Raya No.189, Kramat Pela, Kec. Kby. Baru, Jakarta, Daerah Khusus Ibukota Jakarta 12130)\
-https://vt.tiktok.com/ZSLDG3oBr/
+[Tiktok](https://vt.tiktok.com/ZSLDG3oBr/)
 
 30. SKY CAMPSITE (Jl. Puncak Dua Jonggol, Sukawangi, Sukamakmur, Bogor Regency, West Java 16830)\
-https://vt.tiktok.com/ZSLDGVWNY/
+[Tiktok](https://vt.tiktok.com/ZSLDGVWNY/)
 
 31. Pasta by the Park by Papa Ryo (Taman Literasi Martha Christina Tiahahu, Jl. Sisingamangaraja, RT.3/RW.1, Melawai, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12160)\
-https://vt.tiktok.com/ZSLDtdKNt/
+[Tiktok](https://vt.tiktok.com/ZSLDtdKNt/)
 
 32. Taman Literasi Martha Christina Tiahahu (Jl. Sisingamangaraja, RT.3/RW.1, Melawai, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12160)\
+[Maps]()
