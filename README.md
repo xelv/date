@@ -20,11 +20,10 @@ https://maps.app.goo.gl/V2X4sDFy14KUuodG9?g_st=ic
 https://vt.tiktok.com/ZSL6q7Ytm/
 
 7. Exquise
-
     (Jl. HOS. Cokroaminoto No.42A, Gondangdia, Kec. Menteng, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10310)
-(Jl. Gunawarman No.18, Selong, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12110)
-(JL. BOULEVARD RAYA WB2 NO.24, Jl. Raya Klp. Gading Permai, RT.11/RW.16, Klp. Gading Tim., Kec. Klp. Gading, Jkt Utara, Daerah Khusus Ibukota Jakarta 14240)
-(Jl. Boulevard Raya Gading Serpong No.28, Klp. Dua, Kec. Klp. Dua, Kabupaten Tangerang, Banten 15810)
+    (Jl. Gunawarman No.18, Selong, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12110)
+    (JL. BOULEVARD RAYA WB2 NO.24, Jl. Raya Klp. Gading Permai, RT.11/RW.16, Klp. Gading Tim., Kec. Klp. Gading, Jkt Utara, Daerah Khusus Ibukota Jakarta 14240)
+    (Jl. Boulevard Raya Gading Serpong No.28, Klp. Dua, Kec. Klp. Dua, Kabupaten Tangerang, Banten 15810)
 https://vt.tiktok.com/ZSLM1p4dM/
 
 8. Jj Ramen (Jalan Ampera Raya Gang Kancil RT.03/02 No.9, RT.3/RW.9, Ragunan, Ps. Minggu, Jakarta, Daerah Khusus Ibukota Jakarta 12550)
