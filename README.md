@@ -103,32 +103,32 @@
 35. De Entrance Arkadia (Jl. TB Simatupang No.Kav. 88, Kebagusan, Ps. Minggu, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12520)\
 [Instagram](https://www.instagram.com/reel/CtHAoxzNzWG/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/wfpnhKXft8UMKPwt9)
 
-36. \
+36. Taman Langsat (QQ4V+95Q, Jl. Barito, RT.1/RW.1, Kramat Pela, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12130)\
+[Instagram](https://www.instagram.com/reel/Cspmcn5BiUU/?igshid=MTc4MmM1YmI2Ng%3D%3D) | [Maps](https://goo.gl/maps/wNHKSwFhttYxj4GRA)
+
+37.  ()\
 [Instagram]() | [Maps]()
 
-37. \
+38.  ()\
 [Instagram]() | [Maps]()
 
-38. \
+39.  ()\
 [Instagram]() | [Maps]()
 
-39. \
+40.  ()\
 [Instagram]() | [Maps]()
 
-40. \
+41.  ()\
 [Instagram]() | [Maps]()
 
-41. \
+42.  ()\
 [Instagram]() | [Maps]()
 
-42. \
+43.  ()\
 [Instagram]() | [Maps]()
 
-43. \
+44.  ()\
 [Instagram]() | [Maps]()
 
-44. \
-[Instagram]() | [Maps]()
-
-45. \
+45.  ()\
 [Instagram]() | [Maps]()
