@@ -1,23 +1,4 @@
-# date
-
-## Index
-* [Clean Up Ubuntu](https://github.com/almaduri/ubuntu#clean-up-ubuntu)
-  * [Disk Free](https://github.com/almaduri/ubuntu#disk-free)
-  * [Package](https://github.com/almaduri/ubuntu#package)
-  * [Cache](https://github.com/almaduri/ubuntu#cache)
-  * [Journal](https://github.com/almaduri/ubuntu#journal)
-  * [Snaps](https://github.com/almaduri/ubuntu#snaps)
-  * [Thumbnails](https://github.com/almaduri/ubuntu#thumbnails)
-  * [Syslog](https://github.com/almaduri/ubuntu#syslog)
-* [Gnome Shell Extensions](https://github.com/almaduri/ubuntu#gnome-shell-extensions)
-* [XAMPP](https://github.com/almaduri/ubuntu#xampp)
-* [Custom Shortcuts](https://github.com/almaduri/ubuntu#custom-shortcuts)
-  * [Firefox](https://github.com/almaduri/ubuntu#firefox)
-  * [Google Chrome & Force Dark Mode](https://github.com/almaduri/ubuntu#google-chrome)
-* [rsync](https://github.com/almaduri/ubuntu#rsync)
-  * [rsync basic](https://github.com/almaduri/ubuntu#rsync-basic)
-  * [rsync with notify-send](https://github.com/almaduri/ubuntu#rsync-with-notify-send)
-* [Unmount Removable Media](https://github.com/almaduri/ubuntu#unmount-removable-media)
+# LIST NGEDATE ALIYA
 
 Plangi Sky Dining (JL Jenderal Sudirman Kav 50, Plaza Semanggi 10th Floor, Rooftop Restaurants, RT.1/RW.4, Karet Semanggi, Kecamatan Setiabudi, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12930)
 https://www.instagram.com/reel/Ci7CiPnD2fZ/?igshid=MzRlODBiNWFlZA==
