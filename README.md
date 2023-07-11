@@ -93,3 +93,10 @@
 
 32. Taman Literasi Martha Christina Tiahahu (Jl. Sisingamangaraja, RT.3/RW.1, Melawai, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12160)\
 [Maps](https://goo.gl/maps/x4fjjy8pxMs4BpfP9)
+
+33. Lolipops Playland and Cafe (3JMV+F5F, Taman Kiara Artha Park, Jl. Banten, Kebonwaru, Kec. Batununggal, Kota Bandung, Jawa Barat 40272)\
+[Instagram]() | [Maps](https://goo.gl/maps/xNQPwxybvMTnRNfX9)
+
+34. Taman Lapangan Banteng (RRHP+Q2F, Ps. Baru, Kecamatan Sawah Besar, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10710)
+[Instagram](https://www.instagram.com/reel/CtqBdCCBT3H/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/YAAfjigpDDhY1rSb7)
+
