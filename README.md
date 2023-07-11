@@ -36,13 +36,13 @@
 [Maps](https://vt.tiktok.com/ZSLM1VstT/)
 
 12. ✅ Ramen1 Buaran Plaza (Buaran Plaza, Jl. Raden Intan Raya No.8, Klender, Kec. Duren Sawit, Kota Jakarta Timur, Daerah Khusus Ibukota Jakarta 13470)\
-https://maps.app.goo.gl/kn2UDALhgAYUpTFX9?g_st=ic
+[Maps](https://maps.app.goo.gl/kn2UDALhgAYUpTFX9?g_st=ic)
 
 13. roti gulung ayana buaran (Jl. Dr. KRT Radjiman Widyodiningrat Jl. Waru Doyong, RT.8/RW.8, Jatinegara, Kec. Cakung, Kota Jakarta Timur, Daerah Khusus Ibukota Jakarta 13930)\
-https://vt.tiktok.com/ZSLMudYHd/
+[Tiktok](https://vt.tiktok.com/ZSLMudYHd/)
 
 14. South Quarter (Jl. R.A. Kartini No.Kav. 8, Cilandak Bar., Kec. Cilandak, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12430)\
-https://vt.tiktok.com/ZSLrJEEHT/
+[Tiktok](https://vt.tiktok.com/ZSLrJEEHT/)
 
 15. Sleepless Owls (Jl. Tebet Utara Dalam No.27, RW.2, Tebet Tim., Kec. Tebet, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12820)\
 https://maps.app.goo.gl/ok847wDHEoASf1CQ9?g_st=ic
