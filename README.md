@@ -4,12 +4,10 @@
 [Instagram](https://www.instagram.com/reel/Ci7CiPnD2fZ/?igshid=MzRlODBiNWFlZA==) | [Maps](https://goo.gl/maps/okf9AdwFWENHuNqx8)
 
 2. SORE Izakaya Fatmawati (Jl. RS. Fatmawati Raya No.39, RT.14/RW.4, Cipete Sel., Kec. Cilandak, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12420)\
-[Tiktok](https://vt.tiktok.com/ZSLYuTg3A/)\
-[Maps](https://maps.app.goo.gl/J6CpYVEmEQZNNEVAA?g_st=ic)
+[Tiktok](https://vt.tiktok.com/ZSLYuTg3A/) | [Maps](https://maps.app.goo.gl/J6CpYVEmEQZNNEVAA?g_st=ic)
 
 3. ✅ Feel Matcha (Jl. Kemang Timur No.47, RT.9/RW.3, Bangka, Kec. Mampang Prpt., Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12730)\
-[Twitter](https://twitter.com/foodfess2/status/1666046047989424131?s=46&t=EqnRbNa34mFJfta5mkYiXQ)\
-[Tiktok](https://vt.tiktok.com/ZSLreEXhv/)
+[Twitter](https://twitter.com/foodfess2/status/1666046047989424131?s=46&t=EqnRbNa34mFJfta5mkYiXQ) | [Tiktok](https://vt.tiktok.com/ZSLreEXhv/)
 
 4. Feel Matcha - La Spezia BCBD (Jl. Bulevar Bekasi CBD, Marga Mulya, Kec. Bekasi Utara, Kota Bks, Jawa Barat 17143)\
 
