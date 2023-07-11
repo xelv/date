@@ -106,20 +106,20 @@
 36. Taman Langsat (QQ4V+95Q, Jl. Barito, RT.1/RW.1, Kramat Pela, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12130)\
 [Instagram](https://www.instagram.com/reel/Cspmcn5BiUU/?igshid=MTc4MmM1YmI2Ng%3D%3D) | [Maps](https://goo.gl/maps/wNHKSwFhttYxj4GRA)
 
-37.  ()\
-[Instagram](https://www.instagram.com/reel/CuHDECEL4c4/?igshid=MTc4MmM1YmI2Ng==) | [Maps]()
+37. Wonderland - The Treasure of Life (MargoCity Depok Lantai 1, Jl. Margonda No.358, Kemiri Muka, Kecamatan Beji, Kota Depok, Jawa Barat 16423) sampai 27 Agustus 2023\
+[Instagram](https://www.instagram.com/reel/CuHDECEL4c4/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/FEYH7LUWTJ1wABop6)
 
-38.  ()\
-[Instagram](https://www.instagram.com/reel/CtJRx1-sceh/?igshid=MTc4MmM1YmI2Ng==) | [Maps]()
+38. ROH Projects (QRWR+JP Gondangdia, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta)\
+[Instagram](https://www.instagram.com/reel/CtJRx1-sceh/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/kSvRPDv7cWGUDL8X8)
 
-39.  ()\
-[Instagram](https://www.instagram.com/reel/CuTHMEShyaj/?igshid=MTc4MmM1YmI2Ng==) | [Maps]()
+39. RUBANAH - Underground Hub (Jl. Timor No.25, RT.9/RW.4, Gondangdia, Kec. Menteng, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10350)\
+[Instagram](https://www.instagram.com/reel/CuTHMEShyaj/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/CmPGySgGx19pS91r9)
 
-40.  ()\
-[Instagram](https://www.instagram.com/reel/CuTjNx8Afwy/?igshid=MTc4MmM1YmI2Ng==) | [Maps]()
+40. Instaexperience (Mall Kota Kasablanka, Jl. Raya Casablanca Raya No.Kav. 88, Menteng Dalam, Kec. Tebet, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12870) sampai 23 Juli 2023\
+[Instagram](https://www.instagram.com/reel/CuTjNx8Afwy/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/AaZSLi9u2chLhFUg8)
 
-41.  ()\
-[Instagram](https://www.instagram.com/reel/CuRsOd5hF0k/?igshid=MTc4MmM1YmI2Ng==) | [Maps]()
+41. Jagad gallery (Wisma Geha, Jl. Timor No.25, RW.4, Gondangdia, Dukuh Atas, Central Jakarta City, Jakarta 10350)\
+[Instagram](https://www.instagram.com/reel/CuRsOd5hF0k/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/JYak5LEKwErJdpqw9)
 
 42.  ()\
 [Instagram](https://www.instagram.com/reel/CuO4233hr_m/?igshid=MTc4MmM1YmI2Ng==) | [Maps]()
