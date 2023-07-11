@@ -115,11 +115,11 @@
 39. RUBANAH - Underground Hub (Jl. Timor No.25, RT.9/RW.4, Gondangdia, Kec. Menteng, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10350)\
 [Instagram](https://www.instagram.com/reel/CuTHMEShyaj/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/CmPGySgGx19pS91r9)
 
-40. Instaexperience (Mall Kota Kasablanka, Jl. Raya Casablanca Raya No.Kav. 88, Menteng Dalam, Kec. Tebet, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12870) sampai 23 Juli 2023\
-[Instagram](https://www.instagram.com/reel/CuTjNx8Afwy/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/AaZSLi9u2chLhFUg8)
-
-41. Jagad gallery (Wisma Geha, Jl. Timor No.25, RW.4, Gondangdia, Dukuh Atas, Central Jakarta City, Jakarta 10350)\
+40. Jagad gallery (Wisma Geha, Jl. Timor No.25, RW.4, Gondangdia, Dukuh Atas, Central Jakarta City, Jakarta 10350)\
 [Instagram](https://www.instagram.com/reel/CuRsOd5hF0k/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/JYak5LEKwErJdpqw9)
+
+41. Instaexperience (Mall Kota Kasablanka, Jl. Raya Casablanca Raya No.Kav. 88, Menteng Dalam, Kec. Tebet, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12870) sampai 23 Juli 2023\
+[Instagram](https://www.instagram.com/reel/CuTjNx8Afwy/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/AaZSLi9u2chLhFUg8)
 
 42.  ()\
 [Instagram](https://www.instagram.com/reel/CuO4233hr_m/?igshid=MTc4MmM1YmI2Ng==) | [Maps]()
