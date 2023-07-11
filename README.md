@@ -17,12 +17,11 @@
 [Maps](https://maps.app.goo.gl/V2X4sDFy14KUuodG9?g_st=ic)
 
 6. Metropole XXI (Megaria, Komplek, Jl. Pegangsaan Barat No.21, RT.1/RW.1, Pegangsaan, Kec. Menteng, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10320)\
-https://vt.tiktok.com/ZSL6q7Ytm/
+[Tiktok](https://vt.tiktok.com/ZSL6q7Ytm/)
 
 7. Exquise Patisserie - Menteng (Jl. HOS. Cokroaminoto No.42A, Gondangdia, Kec. Menteng, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10310)\
-https://vt.tiktok.com/ZSLM1p4dM/
-https://maps.app.goo.gl/eSfmEyntL3vRsRAd9
-https://goo.gl/maps/SdnjZQCzvQeFsg9H7
+[Tiktok](https://vt.tiktok.com/ZSLM1p4dM/)\
+[Maps](https://maps.app.goo.gl/eSfmEyntL3vRsRAd9)
 
 8. Exquise Bistro & Patisserie - Gunawarman (Jl. Gunawarman No.18, Selong, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12110)\
 https://goo.gl/maps/g2XyMoFhhhQJg1zi7
