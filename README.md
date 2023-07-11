@@ -10,6 +10,7 @@
 [Twitter](https://twitter.com/foodfess2/status/1666046047989424131?s=46&t=EqnRbNa34mFJfta5mkYiXQ) | [Tiktok](https://vt.tiktok.com/ZSLreEXhv/)
 
 4. Feel Matcha - La Spezia BCBD (Jl. Bulevar Bekasi CBD, Marga Mulya, Kec. Bekasi Utara, Kota Bks, Jawa Barat 17143)\
+[Maps](https://goo.gl/maps/gYQuZfhHZGTg8jav8)
 
 5. Feel Matcha - Braga Bandung (Jl. Braga No.64, Braga, Kec. Sumur Bandung, Kota Bandung, Jawa Barat 40111)\
 [Maps](https://maps.app.goo.gl/V2X4sDFy14KUuodG9?g_st=ic)
