@@ -95,8 +95,40 @@
 [Maps](https://goo.gl/maps/x4fjjy8pxMs4BpfP9)
 
 33. Lolipops Playland and Cafe (3JMV+F5F, Taman Kiara Artha Park, Jl. Banten, Kebonwaru, Kec. Batununggal, Kota Bandung, Jawa Barat 40272)\
-[Instagram]() | [Maps](https://goo.gl/maps/xNQPwxybvMTnRNfX9)
+[Instagram](https://www.instagram.com/reel/CtaglVAsq6-/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/xNQPwxybvMTnRNfX9)
 
-34. Taman Lapangan Banteng (RRHP+Q2F, Ps. Baru, Kecamatan Sawah Besar, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10710)
+34. Taman Lapangan Banteng (RRHP+Q2F, Ps. Baru, Kecamatan Sawah Besar, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10710)\
 [Instagram](https://www.instagram.com/reel/CtqBdCCBT3H/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/YAAfjigpDDhY1rSb7)
 
+35. De Entrance Arkadia (Jl. TB Simatupang No.Kav. 88, Kebagusan, Ps. Minggu, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12520)\
+[Instagram](https://www.instagram.com/reel/CtHAoxzNzWG/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/wfpnhKXft8UMKPwt9)
+
+36. \
+[Instagram]() | [Maps]()
+
+37. \
+[Instagram]() | [Maps]()
+
+38. \
+[Instagram]() | [Maps]()
+
+39. \
+[Instagram]() | [Maps]()
+
+40. \
+[Instagram]() | [Maps]()
+
+41. \
+[Instagram]() | [Maps]()
+
+42. \
+[Instagram]() | [Maps]()
+
+43. \
+[Instagram]() | [Maps]()
+
+44. \
+[Instagram]() | [Maps]()
+
+45. \
+[Instagram]() | [Maps]()
