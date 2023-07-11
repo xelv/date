@@ -43,26 +43,25 @@
 [Tiktok](https://vt.tiktok.com/ZSLrJEEHT/)
 
 15. Sleepless Owls (Jl. Tebet Utara Dalam No.27, RW.2, Tebet Tim., Kec. Tebet, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12820)\
-https://maps.app.goo.gl/ok847wDHEoASf1CQ9?g_st=ic
+[Maps](https://maps.app.goo.gl/ok847wDHEoASf1CQ9?g_st=ic)
 
 16. Journey Coffee (Jl. KH Abdullah Syafei No.78, RT.11/RW.5, Bukit Duri, Kec. Tebet, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12810)\
-https://maps.app.goo.gl/GkvaB5kmJE5XQbdL9?g_st=ic
+[Maps](https://maps.app.goo.gl/GkvaB5kmJE5XQbdL9?g_st=ic)
 
 17. UI to PIK naik KRL & TJ\
-https://vt.tiktok.com/ZSLr7CYcE/
+[Tiktok](https://vt.tiktok.com/ZSLr7CYcE/)
 
 18. Jakarta - Bandung 16.000\
-https://vt.tiktok.com/ZSLrvpEGC/
+[Tiktok](https://vt.tiktok.com/ZSLrvpEGC/)
 
 19. Matcha Bae (Jl. Raya Klp. Hybrida No.37, West Kelapa Gading, Kelapa Gading, North Jakarta City, Jakarta 14240)\
-https://vt.tiktok.com/ZSLhLLbBk/
+[Tiktok](https://vt.tiktok.com/ZSLhLLbBk/)
 
 20. Gincha Matcha House (Jl. Pilar Mas Utama No.28, Kedoya Sel., Kec. Kb. Jeruk, Kota Jakarta Barat, Daerah Khusus Ibukota Jakarta 11520)\
-https://vt.tiktok.com/ZSLhLLALG/
+[Tiktok](https://vt.tiktok.com/ZSLhLLALG/)
 
 21. Streetfood Apartemen Kalibata\
-https://vt.tiktok.com/ZSLhErudA/
-https://vt.tiktok.com/ZSLDGG8aU/
+[Tiktok](https://vt.tiktok.com/ZSLhErudA/) | [Tiktok](https://vt.tiktok.com/ZSLDGG8aU/)
 
 22. Museum patah hati (Jl. Jenderal Sudirman No.KAV 22, Kuningan, Karet, Kecamatan Setiabudi, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12920)\
 https://vt.tiktok.com/ZSLkj5s5b/
