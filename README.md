@@ -144,29 +144,8 @@
 48. The A Cafe by Acre (Sarinah, Jl. M.H. Thamrin, RT.8/RW.4, Gondangdia, Kec. Menteng, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10350)\
 [Tiktok](https://vt.tiktok.com/ZSLfC5xV5/) | [Maps](https://goo.gl/maps/ZEabr82FkWKz3mJP9)
 
-49. a\
-[Tiktok](https://vt.tiktok.com/ZSLfCsRSb/) | [Maps]()
+49. ITUTUH (3, Jl. Tebet Raya No.76c, RW.3, Tebet Tim., Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12820)\
+[Tiktok](https://vt.tiktok.com/ZSLfCsRSb/) | [Maps](https://goo.gl/maps/s6mGUWt43QQzBkaA9)
 
-50. a\
-[Tiktok](https://vt.tiktok.com/ZSLfCtWXA/) | [Maps]()
-
-51. a\
-[Tiktok]() | [Maps]()
-
-52. a\
-[Tiktok]() | [Maps]()
-
-53. a\
-[Tiktok]() | [Maps]()
-
-54. a\
-[Tiktok]() | [Maps]()
-
-55. a\
-[Tiktok]() | [Maps]()
-
-56. a\
-[Tiktok]() | [Maps]()
-
-57. a\
-[Tiktok]() | [Maps]()
+50. Kopi Cantel - Gatot Subroto (Jl. Kartika Candra No.kav. B9, RT.5/RW.2, Karet Semanggi, Kecamatan Setiabudi, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12930)\
+[Tiktok](https://vt.tiktok.com/ZSLfCtWXA/) | [Maps](https://goo.gl/maps/Yv8KjjBdbVEVeW9y5)
