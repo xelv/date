@@ -31,7 +31,7 @@
 [Maps](https://goo.gl/maps/BzDGwC1cLdE2bUkS9)
 
 11. Jj Ramen (Jalan Ampera Raya Gang Kancil RT.03/02 No.9, RT.3/RW.9, Ragunan, Ps. Minggu, Jakarta, Daerah Khusus Ibukota Jakarta 12550)\
-[Maps](https://vt.tiktok.com/ZSLM1VstT/)
+[Tiktok](https://vt.tiktok.com/ZSLM1VstT/) | [Maps](https://goo.gl/maps/1aPQtYWokGbkJmik7)
 
 12. ✅ Ramen1 Buaran Plaza (Buaran Plaza, Jl. Raden Intan Raya No.8, Klender, Kec. Duren Sawit, Kota Jakarta Timur, Daerah Khusus Ibukota Jakarta 13470)\
 [Maps](https://maps.app.goo.gl/kn2UDALhgAYUpTFX9?g_st=ic)
