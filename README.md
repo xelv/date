@@ -85,7 +85,7 @@
 [Tiktok](https://vt.tiktok.com/ZSLDJ9jNG/) | [Maps](https://goo.gl/maps/5AsgdMEN1MR127m7A)
 
 29. Biju Bakeshop & Coffee (Jl. Melawai Raya No.189, Kramat Pela, Kec. Kby. Baru, Jakarta, Daerah Khusus Ibukota Jakarta 12130)\
-[Tiktok](https://vt.tiktok.com/ZSLDG3oBr/) | [Maps](https://goo.gl/maps/VreMCfqQAxBi8t2T9)
+[Tiktok 1](https://vt.tiktok.com/ZSLDG3oBr/) | [Tiktok 2](https://vt.tiktok.com/ZSLfC7HL2/) | [Maps](https://goo.gl/maps/VreMCfqQAxBi8t2T9)
 
 30. SKY CAMPSITE (Jl. Puncak Dua Jonggol, Sukawangi, Sukamakmur, Bogor Regency, West Java 16830)\
 [Tiktok](https://vt.tiktok.com/ZSLDGVWNY/) | [Maps](https://goo.gl/maps/bAZUWRkVNwrHzWWk7)
@@ -134,3 +134,39 @@
 
 45. Ikkudo Ichi, Seirock-Ya, Marugame Udon, Hokben (Ramen)\
 [Instagram](https://www.instagram.com/reel/CrdQfSfsaJE/?igshid=MTc4MmM1YmI2Ng==)
+
+46. Titik Temu Cafe - Sarinah (Jl. M. H. Thamrin. 11 Lt 1 Unit 04-04A, Gondangdia, Kec. Menteng, Daerah Khusus Ibukota Jakarta 10350)\
+[Tiktok](https://vt.tiktok.com/ZSLfC5xV5/) | [Maps](https://goo.gl/maps/eCSCmGganSpVFQCJ8)  
+
+47. Canggu Bakehouse Sarinah (Sarinah, Jl. M.H. Thamrin, RT.8/RW.4, Gondangdia, Kec. Menteng, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta)\
+[Tiktok](https://vt.tiktok.com/ZSLfC5xV5/) | [Maps](https://goo.gl/maps/XHFBBznKsG85pyBF8)
+
+48. The A Cafe by Acre (Sarinah, Jl. M.H. Thamrin, RT.8/RW.4, Gondangdia, Kec. Menteng, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10350)\
+[Tiktok](https://vt.tiktok.com/ZSLfC5xV5/) | [Maps](https://goo.gl/maps/ZEabr82FkWKz3mJP9)
+
+49. a\
+[Tiktok](https://vt.tiktok.com/ZSLfCsRSb/) | [Maps]()
+
+50. a\
+[Tiktok](https://vt.tiktok.com/ZSLfCtWXA/) | [Maps]()
+
+51. a\
+[Tiktok]() | [Maps]()
+
+52. a\
+[Tiktok]() | [Maps]()
+
+53. a\
+[Tiktok]() | [Maps]()
+
+54. a\
+[Tiktok]() | [Maps]()
+
+55. a\
+[Tiktok]() | [Maps]()
+
+56. a\
+[Tiktok]() | [Maps]()
+
+57. a\
+[Tiktok]() | [Maps]()
