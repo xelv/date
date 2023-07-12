@@ -7,7 +7,7 @@
 [Tiktok](https://vt.tiktok.com/ZSLYuTg3A/) | [Maps](https://maps.app.goo.gl/J6CpYVEmEQZNNEVAA?g_st=ic)
 
 3. ✅ Feel Matcha (Jl. Kemang Timur No.47, RT.9/RW.3, Bangka, Kec. Mampang Prpt., Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12730)\
-[Twitter](https://twitter.com/foodfess2/status/1666046047989424131?s=46&t=EqnRbNa34mFJfta5mkYiXQ) | [Tiktok](https://vt.tiktok.com/ZSLreEXhv/) | [Maps]()
+[Twitter](https://twitter.com/foodfess2/status/1666046047989424131?s=46&t=EqnRbNa34mFJfta5mkYiXQ) | [Tiktok](https://vt.tiktok.com/ZSLreEXhv/) | [Maps](https://goo.gl/maps/PqKdsVcynsvh4LE36)
 
 4. Feel Matcha - La Spezia BCBD (Jl. Bulevar Bekasi CBD, Marga Mulya, Kec. Bekasi Utara, Kota Bks, Jawa Barat 17143)\
 [Maps](https://goo.gl/maps/gYQuZfhHZGTg8jav8)
@@ -16,7 +16,7 @@
 [Maps](https://maps.app.goo.gl/V2X4sDFy14KUuodG9?g_st=ic)
 
 6. Metropole XXI (Megaria, Komplek, Jl. Pegangsaan Barat No.21, RT.1/RW.1, Pegangsaan, Kec. Menteng, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10320)\
-[Tiktok](https://vt.tiktok.com/ZSL6q7Ytm/) | [Maps]()
+[Tiktok](https://vt.tiktok.com/ZSL6q7Ytm/) | [Maps](https://goo.gl/maps/mMEhrtpJfq9TkX7w7)
 
 7. Exquise Patisserie - Menteng (Jl. HOS. Cokroaminoto No.42A, Gondangdia, Kec. Menteng, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10310)\
 [Tiktok](https://vt.tiktok.com/ZSLM1p4dM/) | [Maps](https://maps.app.goo.gl/eSfmEyntL3vRsRAd9)
@@ -37,10 +37,10 @@
 [Maps](https://maps.app.goo.gl/kn2UDALhgAYUpTFX9?g_st=ic)
 
 13. roti gulung ayana buaran (Jl. Dr. KRT Radjiman Widyodiningrat Jl. Waru Doyong, RT.8/RW.8, Jatinegara, Kec. Cakung, Kota Jakarta Timur, Daerah Khusus Ibukota Jakarta 13930)\
-[Tiktok](https://vt.tiktok.com/ZSLMudYHd/) | [Maps]()
+[Tiktok](https://vt.tiktok.com/ZSLMudYHd/) | [Maps](https://goo.gl/maps/LqGvhDXTVLLGECyo9)
 
 14. South Quarter (Jl. R.A. Kartini No.Kav. 8, Cilandak Bar., Kec. Cilandak, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12430)\
-[Tiktok](https://vt.tiktok.com/ZSLrJEEHT/) | [Maps]()
+[Tiktok](https://vt.tiktok.com/ZSLrJEEHT/) | [Maps](https://goo.gl/maps/jHQX1XezpRksdvJC8)
 
 15. Sleepless Owls (Jl. Tebet Utara Dalam No.27, RW.2, Tebet Tim., Kec. Tebet, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12820)\
 [Maps](https://maps.app.goo.gl/ok847wDHEoASf1CQ9?g_st=ic)
@@ -55,40 +55,40 @@
 [Tiktok](https://vt.tiktok.com/ZSLrvpEGC/)
 
 19. Matcha Bae (Jl. Raya Klp. Hybrida No.37, West Kelapa Gading, Kelapa Gading, North Jakarta City, Jakarta 14240)\
-[Tiktok](https://vt.tiktok.com/ZSLhLLbBk/) | [Maps]()
+[Tiktok](https://vt.tiktok.com/ZSLhLLbBk/) | [Maps](https://goo.gl/maps/vynidRD6Sabpr6nZ9)
 
 20. Gincha Matcha House (Jl. Pilar Mas Utama No.28, Kedoya Sel., Kec. Kb. Jeruk, Kota Jakarta Barat, Daerah Khusus Ibukota Jakarta 11520)\
-[Tiktok](https://vt.tiktok.com/ZSLhLLALG/) | [Maps]()
+[Tiktok](https://vt.tiktok.com/ZSLhLLALG/) | [Maps](https://goo.gl/maps/AdzcoxNSWxkTPYUP6)
 
-21. Streetfood Apartemen Kalibata\
-[Tiktok 1](https://vt.tiktok.com/ZSLhErudA/) | [Tiktok 2](https://vt.tiktok.com/ZSLDGG8aU/) | [Maps]()
+21. Streetfood Apartemen Kalibata (Kalibata City, Apartemen tower jasmine, RW.2, Rawajati, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12750)\
+[Tiktok 1](https://vt.tiktok.com/ZSLhErudA/) | [Tiktok 2](https://vt.tiktok.com/ZSLDGG8aU/) | [Maps](https://goo.gl/maps/hAXyNh8c9DsKCqUk9)
 
 22. Museum patah hati (Jl. Jenderal Sudirman No.KAV 22, Kuningan, Karet, Kecamatan Setiabudi, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12920)\
-[Tiktok](https://vt.tiktok.com/ZSLkj5s5b/) | [Maps]()
+[Tiktok](https://vt.tiktok.com/ZSLkj5s5b/) | [Maps](https://goo.gl/maps/ZwSSR1E6LsWeMf7P8)
 
 23. Tanjakan 13 - Kuningan City (Jl. Prof. DR. Satrio No.14, RT.14/RW.4, Kuningan, Karet Kuningan, Kecamatan Setiabudi, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12940)\
-[Tiktok](https://vt.tiktok.com/ZSLkbD9B4/) | [Maps]()
+[Tiktok](https://vt.tiktok.com/ZSLkbD9B4/) | [Maps](https://goo.gl/maps/rq6RGWMQz1MgMHJ7A)
 
 24. COSTESS Cafe & Bar (Cyber 2 Tower 17th Floor, Jalan Haji R. Rasuna Said Blok X-5, RT.7/RW.2, Kuningan, Kecamatan Setiabudi, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12950)\
-[Maps]()
+[Maps](https://goo.gl/maps/4g1N52hYiLjPnmfy5)
 
 25. Sentosa Seafood Senayan (Komplek Gelora Bung Karno, Jl. Pintu Satu Senayan. Rooftop Gedung Parkir Elevated, A, Daerah Khusus Ibukota Jakarta 10289)\
-[Maps]()
+[Maps](https://goo.gl/maps/UFJ8ZaYpTc1DnL1J9)
 
 26. Golden Pine (Orchid forrest, Cikole, Kec. Lembang, Kabupaten Bandung Barat, Jawa Barat)\
-[Tiktok](https://vt.tiktok.com/ZSLknGJQ1/) | [Maps]()
+[Tiktok](https://vt.tiktok.com/ZSLknGJQ1/) | [Maps](https://goo.gl/maps/U5eNVuMvds7FhxEH8)
 
 27. Senayan Park (Jl. Gerbang Pemuda No.3, RT.1/RW.3, Gelora, Kecamatan Tanah Abang, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10270)\
-[Tiktok](https://vt.tiktok.com/ZSLAXmWs5/) | [Maps]()
+[Tiktok](https://vt.tiktok.com/ZSLAXmWs5/) | [Maps](https://goo.gl/maps/5AsgdMEN1MR127m7A)
 
 28. Kopi Nako Daur Baur (Senayan Park, Jl. Gerbang Pemuda No.3, RT.1/RW.3, Gelora, Kecamatan Tanah Abang, Daerah Khusus Ibukota Jakarta 10270\
-[Tiktok](https://vt.tiktok.com/ZSLDJ9jNG/) | [Maps]()
+[Tiktok](https://vt.tiktok.com/ZSLDJ9jNG/) | [Maps](https://goo.gl/maps/5AsgdMEN1MR127m7A)
 
 29. Biju Bakeshop & Coffee (Jl. Melawai Raya No.189, Kramat Pela, Kec. Kby. Baru, Jakarta, Daerah Khusus Ibukota Jakarta 12130)\
-[Tiktok](https://vt.tiktok.com/ZSLDG3oBr/) | [Maps]()
+[Tiktok](https://vt.tiktok.com/ZSLDG3oBr/) | [Maps](https://goo.gl/maps/VreMCfqQAxBi8t2T9)
 
 30. SKY CAMPSITE (Jl. Puncak Dua Jonggol, Sukawangi, Sukamakmur, Bogor Regency, West Java 16830)\
-[Tiktok](https://vt.tiktok.com/ZSLDGVWNY/) | [Maps]()
+[Tiktok](https://vt.tiktok.com/ZSLDGVWNY/) | [Maps](https://goo.gl/maps/bAZUWRkVNwrHzWWk7)
 
 31. Pasta by the Park by Papa Ryo (Taman Literasi Martha Christina Tiahahu, Jl. Sisingamangaraja, RT.3/RW.1, Melawai, Kec. Kby. Baru, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12160)\
 [Tiktok](https://vt.tiktok.com/ZSLDtdKNt/) | [Instagram](https://www.instagram.com/reel/CtRGty5sh43/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/aw3wYxgGhLHFQ4gN8)
@@ -134,4 +134,3 @@
 
 45. Ikkudo Ichi, Seirock-Ya, Marugame Udon, Hokben (Ramen)\
 [Instagram](https://www.instagram.com/reel/CrdQfSfsaJE/?igshid=MTc4MmM1YmI2Ng==)
-
