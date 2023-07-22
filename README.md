@@ -155,3 +155,6 @@
 
 52. Pause & Play (RG-II No. 18, Golf Island, Pantai Indah Kapuk St, Jakarta 14470)\
 [Instagram](https://www.instagram.com/reel/CuGYHPSsHZA/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/DELA7Dk7AyEncsxk6)
+
+53. One Satrio (CBD, Jl. Mega Kuningan Jl. Prof. DR. Satrio No.Kav. E, RT.5/RW.3, Kuningan, Karet Kuningan, Kecamatan Setiabudi, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12949)\
+[Tiktok](https://vt.tiktok.com/ZSLujtky7/) | [Maps](https://goo.gl/maps/4z36HevsRrDzdNoQA)
