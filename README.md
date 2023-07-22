@@ -164,3 +164,6 @@
 
 55. Serumpun (Jl. Gn. Balong Raya, RT.11/RW.4, Lb. Bulus, Kec. Cilandak, jakarta, Daerah Khusus Ibukota Jakarta 12440)\
 [Tiktok](https://vt.tiktok.com/ZSLPXGa4e/) | [Maps](https://goo.gl/maps/EbHhmVNPrnG4eMhg6)
+
+56. Ayam Goreng Presto Cipete (Jalan Cipete Raya No. 11, RT.04/RW.04, Cipete Selatan, Cilandak, RT.8/RW.4, Cipete Sel., Kec. Cilandak, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12410)\
+[Tiktok](https://vt.tiktok.com/ZSLmT486n/) | [Maps](https://goo.gl/maps/EFJTUztVXs9vEB4j6)
