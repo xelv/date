@@ -152,3 +152,6 @@
 
 51. Cititex (Ruko Grand Galaxy City Blok RGA)\
 [Instagram](https://www.instagram.com/reel/Crf1eB4tk_m/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/1ciyUn8ARPAfsSVM8)
+
+52. Pause & Play (RG-II No. 18, Golf Island, Pantai Indah Kapuk St, Jakarta 14470)\
+[Instagram](https://www.instagram.com/reel/CuGYHPSsHZA/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/DELA7Dk7AyEncsxk6)
