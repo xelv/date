@@ -158,3 +158,6 @@
 
 53. One Satrio (CBD, Jl. Mega Kuningan Jl. Prof. DR. Satrio No.Kav. E, RT.5/RW.3, Kuningan, Karet Kuningan, Kecamatan Setiabudi, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12949)\
 [Tiktok](https://vt.tiktok.com/ZSLujtky7/) | [Maps](https://goo.gl/maps/4z36HevsRrDzdNoQA)
+
+54. Plaza Senayan Mall (Gelora, Kecamatan Tanah Abang, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta)\
+[Tiktok](https://vt.tiktok.com/ZSLPXpEGG/) \ [Maps](https://goo.gl/maps/wcqbjJ91TeZeiLMK9)
