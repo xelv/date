@@ -149,3 +149,6 @@
 
 50. Kopi Cantel - Gatot Subroto (Jl. Kartika Candra No.kav. B9, RT.5/RW.2, Karet Semanggi, Kecamatan Setiabudi, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12930)\
 [Tiktok](https://vt.tiktok.com/ZSLfCtWXA/) | [Maps](https://goo.gl/maps/Yv8KjjBdbVEVeW9y5)
+
+51. Cititex (Ruko Grand Galaxy City Blok RGA)\
+[Instagram](https://www.instagram.com/reel/Crf1eB4tk_m/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/1ciyUn8ARPAfsSVM8)
