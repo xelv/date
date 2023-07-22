@@ -176,3 +176,6 @@
 
 59. IRO RUMAH KOPI (RUMAH KETIGA) (Gedung Inspektorat Jenderal Gedung B, Kemendikbudristek, Jl. Jenderal Sudirman, Senayan, Jakarta, Daerah Khusus Ibukota Jakarta 10270)\
 [Tiktok](https://vt.tiktok.com/ZSLAsXsca/) | [Maps](https://goo.gl/maps/rGJSM6kzL4LRpRFS7)
+
+60. Mbience Garden Bistro (Jl. Wisma Jaya No.3, RT.16/RW.13, Rawamangun, Kec. Pulo Gadung, Kota Jakarta Timur, Daerah Khusus Ibukota Jakarta 13220)\
+[Tiktok](https://vt.tiktok.com/ZSLD1PTfG/) | [Maps](https://goo.gl/maps/ZNTdNNux7vGbNfPH6)
