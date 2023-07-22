@@ -167,3 +167,6 @@
 
 56. Ayam Goreng Presto Cipete (Jalan Cipete Raya No. 11, RT.04/RW.04, Cipete Selatan, Cilandak, RT.8/RW.4, Cipete Sel., Kec. Cilandak, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12410)\
 [Tiktok](https://vt.tiktok.com/ZSLmT486n/) | [Maps](https://goo.gl/maps/EFJTUztVXs9vEB4j6)
+
+57. BRUNO Cafe in the Park (Sunshine Park, Gripastudio, Jl. Griya Tapa Jl. Taman Margasatwa Raya No.9G, Jakarta 12550)\
+[Tiktok](https://vt.tiktok.com/ZSLrH8q7R/) | [Maps](https://goo.gl/maps/BFthSty28Zos58Mm9)
