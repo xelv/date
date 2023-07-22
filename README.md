@@ -160,4 +160,7 @@
 [Tiktok](https://vt.tiktok.com/ZSLujtky7/) | [Maps](https://goo.gl/maps/4z36HevsRrDzdNoQA)
 
 54. Taman Plaza Senayan Mall (Gelora, Kecamatan Tanah Abang, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta)\
-[Tiktok](https://vt.tiktok.com/ZSLPXpEGG/) \ [Maps](https://goo.gl/maps/wcqbjJ91TeZeiLMK9)
+[Tiktok](https://vt.tiktok.com/ZSLPXpEGG/) | [Maps](https://goo.gl/maps/wcqbjJ91TeZeiLMK9)
+
+55. Serumpun (Jl. Gn. Balong Raya, RT.11/RW.4, Lb. Bulus, Kec. Cilandak, jakarta, Daerah Khusus Ibukota Jakarta 12440)\
+[Tiktok](https://vt.tiktok.com/ZSLPXGa4e/) | [Maps](https://goo.gl/maps/EbHhmVNPrnG4eMhg6)
