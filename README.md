@@ -170,3 +170,6 @@
 
 57. BRUNO Cafe in the Park (Sunshine Park, Gripastudio, Jl. Griya Tapa Jl. Taman Margasatwa Raya No.9G, Jakarta 12550)\
 [Tiktok](https://vt.tiktok.com/ZSLrH8q7R/) | [Maps](https://goo.gl/maps/BFthSty28Zos58Mm9)
+
+58. Sehela Kopi (Jl. Pd. Labu 1 No.8b, RT.3/RW.7, Pd. Labu, Kec. Cilandak, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12450)\
+[Tiktok](https://vt.tiktok.com/ZSLkepAS6/) | [Maps](https://goo.gl/maps/kYbXMfrS4frCyBSx7)
