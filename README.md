@@ -114,10 +114,10 @@
 38. ROH Projects (QRWR+JP Gondangdia, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta)\
 [Instagram 1](https://www.instagram.com/reel/CtJRx1-sceh/?igshid=MTc4MmM1YmI2Ng==) | [Instagram 2](https://www.instagram.com/reel/Cuvp85YrYwf/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/kSvRPDv7cWGUDL8X8)
 
-39. RUBANAH - Underground Hub (Jl. Timor No.25, RT.9/RW.4, Gondangdia, Kec. Menteng, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10350)\
+39. ✅  RUBANAH - Underground Hub (Jl. Timor No.25, RT.9/RW.4, Gondangdia, Kec. Menteng, Kota Jakarta Pusat, Daerah Khusus Ibukota Jakarta 10350)\
 [Instagram](https://www.instagram.com/reel/CuTHMEShyaj/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/CmPGySgGx19pS91r9)
 
-40. Jagad gallery (Wisma Geha, Jl. Timor No.25, RW.4, Gondangdia, Dukuh Atas, Central Jakarta City, Jakarta 10350)\
+40. ✅  Jagad gallery (Wisma Geha, Jl. Timor No.25, RW.4, Gondangdia, Dukuh Atas, Central Jakarta City, Jakarta 10350)\
 [Instagram](https://www.instagram.com/reel/CuRsOd5hF0k/?igshid=MTc4MmM1YmI2Ng==) | [Maps](https://goo.gl/maps/JYak5LEKwErJdpqw9)
 
 41. Instaexperience (Mall Kota Kasablanka, Jl. Raya Casablanca Raya No.Kav. 88, Menteng Dalam, Kec. Tebet, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12870) sampai 23 Juli 2023\
