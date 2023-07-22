@@ -173,3 +173,6 @@
 
 58. Sehela Kopi (Jl. Pd. Labu 1 No.8b, RT.3/RW.7, Pd. Labu, Kec. Cilandak, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12450)\
 [Tiktok](https://vt.tiktok.com/ZSLkepAS6/) | [Maps](https://goo.gl/maps/kYbXMfrS4frCyBSx7)
+
+59. IRO RUMAH KOPI (RUMAH KETIGA) (Gedung Inspektorat Jenderal Gedung B, Kemendikbudristek, Jl. Jenderal Sudirman, Senayan, Jakarta, Daerah Khusus Ibukota Jakarta 10270)\
+[Tiktok](https://vt.tiktok.com/ZSLAsXsca/) | [Maps](https://goo.gl/maps/rGJSM6kzL4LRpRFS7)
